@@ -1,2 +1,7 @@
 # ey im pact
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=pact64)](https://github.com/pact64/pact64.github.io)
+<a href="https://github.com/pact64/pact64">
+  <img align="center" src="https://github-readme-stats.vercel.app/api/pin/?username=pact64&repo=github-readme-stats" />
+</a>
+<a href="https://github.com/pact64/pact64">
+  <img align="center" src="https://github-readme-stats.vercel.app/api/pin/?username=pact64&repo=pact64.github.io" />
+</a>
