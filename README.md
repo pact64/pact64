@@ -1,4 +1,5 @@
 > You think that just because I masturbate to furry porn I'm a furry? Think again, maggot. The furry fandom is a breeding ground for the most advanced autism this planet has ever seen. Every day, thousands are consumed by a tidal wave of OwO and cancerous roleplaying, and the foundations of our society slowly weaken under the constant onslaught of weapons-grade cringe. Our founding fathers recoil in disgust as people dress up as animals and buy giant dildos on the Internet, fucking each other in sweaty drunken homosexual orgies and traumatizing children in droves. Every second we draw closer to Furry Armageddon, and you sit there saying stupid shit on the Internet. To compare someone to a furry is the most heinous insult imaginable. When your door gets broken down by a rainbow wolf/deer hybrid and you get yiffed into oblivion, then we'll see who's laughing. This is a real threat and it must be treated with extreme solemnity.  
   
-awesome
+awesome  
+  
 ![GANG](https://img-9gag-fun.9cache.com/photo/aVYqgKn_460s.jpg "lol")
