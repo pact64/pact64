@@ -1,13 +1,11 @@
-# swag  
-  
-### yo yo yo im pact  
- ### i am awesome
- 
- ### i am super omega cool
+### swag
 
- ### i destroy nerds very easy
+<img align="right" src="https://pm1.narvii.com/6519/c3ac070676eb2b6275006569a6b1b58728dbcf66_00.jpg" />
 
- ### i hate https://www.finobe.com/forums/  
-  
- ### 
-<img height="50%" align="right" src="https://img-9gag-fun.9cache.com/photo/aVYqgKn_460s.jpg"/> 
+### YOOOOOOOOOOOOOOOOOOOOOOOOOO WASSUP BOYS IM PACT (SUPER AWESOME)
+
+- i am AWESOME
+- i hate finobe
+- 
+
+like and subscribe for more
