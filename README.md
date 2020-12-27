@@ -2,7 +2,7 @@
 
 <img height="400" align="right" src="https://i.redd.it/nrfoar9emhv41.png" />
 
-Pact64 is a weeb multi-shitposting bot. That's probably some dude on the internet.  
+Pact64 is a weeb multi-shitposting bot. That's probably some dude that's a loser and watches anime on the internet.  
   
 ## Features
 - Pact64 is bad at coding. (html n css)
