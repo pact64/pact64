@@ -1,11 +1,9 @@
-### swag
+# yo im pact
 
-<img align="right" src="https://pm1.narvii.com/6519/c3ac070676eb2b6275006569a6b1b58728dbcf66_00.jpg" />
+<img height="50" align="right" src="https://i.redd.it/iv2kqm8pvjs01.jpg" />
 
-### YOOOOOOOOOOOOOOOOOOOOOOOOOO WASSUP BOYS IM PACT (SUPER AWESOME)
-
-- i am AWESOME
-- i hate finobe
-- 
-
-like and subscribe for more
+### i am big loser that watches anime!.... and codes(?)  
+  
+### the only coding languages i know is html n' css. wish to learn more.  
+  
+### 
