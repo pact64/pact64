@@ -17,6 +17,6 @@ Pact64 is a multi-shitposting bot that's actually some weeb on the internet.
 - Make Pact64 not racist!!
 ## Installation
 Contact your nearest Pact64 bot at [twitr](https://www.twitter.com/pact420) for the latest updates!!  
-For a got installation: `got clone unfunny.got`
-For a npn installation: `npn install unfunnybot`
-For a pit installation: `pit install unfunny-bot-pact64`
+For a got installation: `got clone unfunny.got`  
+For a npn installation: `npn install unfunnybot`  
+For a pit installation: `pit install unfunny-bot-pact64`  
