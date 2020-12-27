@@ -1,5 +1,5 @@
 # swag  
-<img width="35%" align="right" src="https://img-9gag-fun.9cache.com/photo/aVYqgKn_460s.jpg" />
+<img height="50%" align="right" src="https://img-9gag-fun.9cache.com/photo/aVYqgKn_460s.jpg" />
   
 yo yo yo im pact  
  * i am awesome
