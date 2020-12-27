@@ -1,6 +1,6 @@
 # pact64
 
-<img height="400" align="right" src="https://i.redd.it/iv2kqm8pvjs01.jpg" />
+<img height="400" align="right" src="https://i.redd.it/zdvj80cdls221.png" />
 
 Pact64 is a weeb multi-shitposting bot. That's probably some dude on the internet.  
   
