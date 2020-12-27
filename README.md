@@ -2,7 +2,7 @@
 
 <img height="400" align="right" src="https://i.redd.it/iv2kqm8pvjs01.jpg" />
 
-Pact64 is a multi-shitposting bot that's actually some weeb on the internet.  
+Pact64 is a weeb multi-shitposting bot. That's probably some dude on the internet.  
   
 ## Features
 - Pact64 is bad at coding. (html n css)
@@ -11,7 +11,10 @@ Pact64 is a multi-shitposting bot that's actually some weeb on the internet.
 - Pact64 IS AWESOME!!!!
 - Pact64 can do your mom!!!! (LOL!!!!)
 - Pact64 can hate on finobe!!!
-- Pact64 can die.
+- Did I forget to mention Pact64 IS AWESOME!!!
+- Pact64 has carpal tunnel! (HELP)
+- Pact64 is racist.
+- Pact64 can do nothing with its life.
 ## Planned
 - Make Pact64 actually funny. (Very hard!)
 - Make Pact64 not racist!!
