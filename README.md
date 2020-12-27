@@ -13,7 +13,7 @@ Pact64 is a weeb multi-shitposting bot. That's probably some dude on the interne
 - Pact64 can hate on finobe!!!
 - Did I forget to mention Pact64 IS AWESOME!!!
 - Pact64 has carpal tunnel! (HELP)
-- Pact64 is racist.
+- Pact64 is VERY VERY VERY racist.
 - Pact64 can do nothing with its life.
 ## Planned
 - Make Pact64 actually funny. (Very hard!)
