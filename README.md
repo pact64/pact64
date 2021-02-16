@@ -1,3 +1,5 @@
 # hi  
   
-![lmao](https://cdn.discordapp.com/attachments/708099501428178985/803333549352288306/image0.png "lmao")
+hi im pact im awesome  
+  
+![burger](https://cdn.pixabay.com/photo/2018/12/07/14/42/burger-3861746_960_720.jpg "burger")
